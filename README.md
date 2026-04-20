@@ -1,3 +1,3 @@
 ### Hi, I'm Ken
 
-I'm from Kenya; Aspiring Software Engineer/Data Analyst
+I'm an international student from Kenya; Aspiring Software Engineer/Data Analyst
